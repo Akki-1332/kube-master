@@ -28,4 +28,4 @@ Author Information
 ------------------
 
 **Aakash Choudhary**
-[mail to](choudharyaakash316@gmail.com)
+[Contact Me](choudharyaakash316@gmail.com)
